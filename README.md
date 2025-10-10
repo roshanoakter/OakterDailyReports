@@ -1,0 +1,1 @@
+Daily Image for reports
